@@ -7,3 +7,4 @@ https://www.vascara.com/tui-deo-cheo/tui-deo-cheo-nap-gap-van-ki-da-sho-0219-mau
 https://www.vascara.com/tui-deo-cheo/tui-deo-vai-nap-gap-xep-nhun-sho-0217-mau-trang  
 https://www.vascara.com/tui-deo-cheo/tui-deo-cheo-phoi-layer-khoa-gap-khoen-tron-sho-0192-mau-trang  
 https://www.vascara.com/tui-xach-nho/tui-deo-cheo-nhan-khoa-kieu-kim-loai-sho-0240-mau-trang  
+https://www.vascara.com/tui-xach-vua/tui-cam-tay-nap-gap-nhan-khoa-chu-nhat-sat-0336-mau-kem  
